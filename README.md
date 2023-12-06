@@ -1,4 +1,4 @@
-![7b84ce210dcaf691e0ca28a31a8069c8](https://github.com/reneigh/reneigh.github.io/assets/152232529/3b8580de-d527-483b-a78b-a15f7097111e)# reneigh.github.io
+# reneigh.github.io
 Aaron Moreno
 # 'RENAISSANCE: A Film by Beyoncé'
 ![beyonce](https://github.com/reneigh/reneigh.github.io/assets/152232529/30353765-15f4-4d8f-a0d8-c491dbf71e95)
